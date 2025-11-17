@@ -1,39 +1,15 @@
-<img src="https://media.discordapp.net/attachments/1430874004889141283/1430960687122747392/Untitled_design_3.png?ex=68fbad7d&is=68fa5bfd&hm=ae3566ab15add543b5a0479db3806c6189f88e97d8a9d1d8734001f3087488cd&=&format=webp&quality=lossless&width=670&height=251" width="2000" height="600" alt="cute divider2"/>
-
----
-
   <div align='center'>
 </p>
 
- ### ❝ 𝙏𝙝𝙚𝙮 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙩𝙝𝙚 𝙢𝙤𝙤𝙣, 𝙗𝙪𝙩 𝙄 𝙝𝙖𝙫𝙚 𝙖𝙡𝙬𝙖𝙮𝙨 𝙚𝙣𝙫𝙞𝙚𝙙 𝙩𝙝𝙚 𝙨𝙪𝙣—𝙝𝙤𝙬 𝙝𝙚 𝙗𝙪𝙧𝙣𝙨 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙗𝙧𝙚𝙖𝙠𝙞𝙣𝙜.❞
----
 
-<img src="https://media.discordapp.net/attachments/1430874004889141283/1430960686388871310/Untitled_design_4.png?ex=68fbad7d&is=68fa5bfd&hm=ec71282d441015725f579290f64fd96cd409f48cf959fe5d99e138a38a47b5f2&=&format=webp&quality=lossless&width=475&height=268" width="900" height="600" alt="cute divider1"/>
+<img src="https://64.media.tumblr.com/7c0f2855fea0f3d9237b53cd6a756520/803107fcac1a810c-a1/s1280x1920/7149f3c40a97744cf91ba0f8d39326801e0b1017.jpg" width="400" height="400" alt="cute divider2"/>    
 
-#  <p align="center"> ᯓ★ 𝐂a𝐞𝐥 ₊⊹
-⤷  𝗦𝘁𝗮𝘁𝘂𝘀: Sleepy
-<img src="https://media.discordapp.net/attachments/1430874004889141283/1430963536493809755/ezgif-84eaacd003b83c.gif?ex=68fbb025&is=68fa5ea5&hm=9d3cee154989a885641794c3aa3d48f5f25fec0ffac7e656e769e489811ba5d2&=&width=268&height=268" width="40" height="40" alt="cute divider4"/>
+<img src="https://64.media.tumblr.com/840d6b4a962a1042b3e733b160b7f543/fedb7922ef49a4d4-7b/s1280x1920/e3f1ddbb5b9b2e549b6bc2b11dcd61b2c0f606dd.pnj" width="400" height="400" alt="cute divider2"/>    
 
-<img src="https://media.discordapp.net/attachments/1430874004889141283/1430961271800336454/image.png?ex=68fbae09&is=68fa5c89&hm=237603b9ee529c2086e8ce52c9089b754f3fbf3ffca4bd8ba592a0db7c189efd&=&format=webp&quality=lossless&width=800&height=139" width="260" height="260" alt="cute divider4"/>
+<img src="https://64.media.tumblr.com/699ee57cc19652efd87812abb3bee05f/fedb7922ef49a4d4-fe/s500x750/0634354f9ce30bba95133c507515380dc09d65a0.pnj" width="400" height="400" alt="cute divider2"/>    
 
-✦ 𝙃𝙚𝙡𝙡𝙤 .    
-My name is **Cael**
+<img src="https://64.media.tumblr.com/1933ae99e18339106ab7184b629ff66a/e287347192152d61-92/s400x600/13c204d6e98b21b42b69117d774b6ec2c6fb00d6.pnj" width="400" height="500" alt="cute divider2"/>    
 
-I'm new to all this but *Xuan* helps me.
+<img src="https://64.media.tumblr.com/cc7ff080ea9e96cb6f516ae6a0ceb0c1/bf8696b1515d7875-08/s640x960/93ad9a8515cde3d89ccfb1469ffc365344898fc0.jpg" width="400" height="400" alt="cute divider2"/>    
 
-I'm not very good at conversations, so please forgive me in advance.
-
-**Xuán** bullies me on call.
-
-˙𐃷˙
-
----
-
-> ₊˚ʚ I am a **listener** ɞ₊˚  
-
- <img src="https://media.discordapp.net/attachments/1430874004889141283/1430968233032421509/ezgif-544db82636c431.gif?ex=68fbb484&is=68fa6304&hm=796105c56b3464d4f8829608f2a643214579e1ba994b9ca8e783f61bfd6b1e4e&=&width=275&height=183" width="100" height="100" alt="cute divider4"/>
-
-.˚₊︶︶︶︶︶︶︶︶︶₊˚.
- 
-
-<img src="https://media.discordapp.net/attachments/1430874004889141283/1430960687450030302/Untitled_design_2.png?ex=68fbad7d&is=68fa5bfd&hm=d83cd4a6b9ab0e1da38039f3a2812b07b46d27393d851f5bed93d579dc05a23c&=&format=webp&quality=lossless&width=670&height=251" width="2000" height="600" alt="cute divider3"/>
+***Why am I still single?***
